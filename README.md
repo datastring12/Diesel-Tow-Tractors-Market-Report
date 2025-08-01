@@ -1,0 +1,2 @@
+# Diesel-Tow-Tractors-Market-Report
+Industry revenue for Diesel Tow Tractors is estimated to rise to $1821.8 million by 2035 from $813.9 million of 2024. The revenue growth of market players is expected to average at 7.6% annually for the period 2024 to 2035.
